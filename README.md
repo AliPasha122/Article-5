@@ -1,3 +1,4 @@
+𝐀𝐛𝐬𝐭𝐫𝐚𝐜𝐭:
 As urbanization continues to thrive, indoor noise pollution has emerged as a growing and
 often overlooked problem. From loud neighbors and street traffic to sounds from household
 appliances, noise pollution negatively affects mental health, concentration, and sleep quality.
